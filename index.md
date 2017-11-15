@@ -1,4 +1,4 @@
 ## Welcome to 10's Blog
 
-更多内容可以访问[一零的个人网站](http://hquzyl.com/)
+更多内容可以访问[一零的个人网站](http://www.onezero.cc)
 
